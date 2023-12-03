@@ -1,4 +1,3 @@
-### Guten Morgen!
+Wie ich diesen Wal hasse...
 
-
-![Premium Erdbeer-Kiwi](https://github.com/marekvonrogall/marekvonrogall/assets/110893394/4871897c-dd02-4dd3-bbbc-50dddc1d52cc)
+![DOCKER](https://github.com/marekvonrogall/M294/assets/110893394/26f13556-92eb-4d08-bd76-f47c81e8b07e)
