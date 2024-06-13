@@ -1,1 +1,1 @@
-Guten Morgen!
+Schüler der Informatikmittelschule Baden.
